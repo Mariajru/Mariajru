@@ -1,5 +1,5 @@
 Hi, I'm Mariajose! Here you can find some of my work ✨
-  - Images, Optics, Color Science, and Computer Vision. 
+  - Optics, Color Science, and Computer Vision. 
 
 📫 Contact me by:
   - mariajoserdmnts@gmail.com
