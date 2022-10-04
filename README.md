@@ -5,5 +5,3 @@ Hi, I'm Mariajose! Here you can find some of my work ✨
   - mariajoserdmnts@gmail.com
 
 More about me in my [Linkedin](https://www.linkedin.com/in/maria-jose-rueda-montes-9204bb1b3/).
-
-(I'll be updating this account the first months of 2022 that I have more free time 😊)
